@@ -1,0 +1,1 @@
+# birinchi_amaliy_ish
